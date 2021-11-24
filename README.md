@@ -1,1 +1,1 @@
-# pranks-pj.github.io
+# prankspj.github.io
